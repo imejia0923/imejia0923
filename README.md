@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @imejia0923..
 - 🌱 I’m currently a technical and biological recruiter.
-- 📫 How to reach me isabella@talentretriever.com 
+- 📫 Email me: isabella@talentretriever.com 
 - Let's Connect!
 
 <!---
